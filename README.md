@@ -1,0 +1,2 @@
+# -RichardAndrei
+Gruppitöö
